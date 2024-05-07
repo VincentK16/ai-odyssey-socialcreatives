@@ -1,1 +1,1 @@
-# ai-odyssey-socialcreatives
+# AI Odyssey Social Creatives
